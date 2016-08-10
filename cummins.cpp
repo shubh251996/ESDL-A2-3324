@@ -1,3 +1,4 @@
 Hiii!!!!!
-This is cummins college.
+Departments are in college are as follws.
 There are 5 departments in the college.
+In our college so big library is their.
